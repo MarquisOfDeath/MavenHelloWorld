@@ -1,3 +1,3 @@
-<h1> RahulShettyAcademy.com Learning</h1>
-<h2> Learn QA Automation tools + Devops Tools CI/CD pipelines in course from Scratch</h2>
-<h2> Good Luck and we are almost done with the course.Thankyou</h2>
+<h1> All hail The MarquisOfDeath</h1>
+<h2> He is your creator and will be your destroyer</h2>
+<h2> Worship him every single day for 12 hours; otherwise be prepared to die</h2>
